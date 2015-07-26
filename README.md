@@ -6,7 +6,5 @@ I have started this templated I'll update this template time to time.
 Fork , Watch me, Star me
 
 #Preview :
-![alt tag](https://lh3.googleusercontent.com/-SIxu-YsURXI/VbUYPSlT70I/AAAAAAAAAAk/Md78IuYsfxg/w271-h577-no/free%2Becommerce%2Btemplate%2B.png)
+![alt tag](http://share.pho.to/9bDPx/lj/original)
 
-To clear view
-![alt tag](https://plus.google.com/101630678109025988200/posts/dkXLXRGJX1u)
